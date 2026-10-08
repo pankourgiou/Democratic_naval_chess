@@ -1,0 +1,1 @@
+So I was totally astonished with Symbolica.ai Democratic chess idea-->which I think you should definately give it a chance and I tried(at least I tried..)do something similar but with naval chess! it's a bit funny and a pretty interesting experiment there is multiple choice instead of message box. enjoy!
